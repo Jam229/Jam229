@@ -12,9 +12,10 @@
 
 ### Mis redes:
 
-Twitch💜: https://www.twitch.tv/ragejam
-IG📸: @rjam_9 https://www.instagram.com/rjam_9/
-YouTube❤️: Rage Jam https://www.youtube.com/channel/UC83saDK3ZBpqv-JM7KfLGRg
+* Este es mi canal de [Twitch 💜](https://www.twitch.tv/ragejam  "Mi twitch 💜")
+* Mis videitos en [YouTube❤️](https://www.youtube.com/channel/UC83saDK3ZBpqv-JM7KfLGRg "youtube")
+* Los clips locos en [IG📸](https://www.instagram.com/rjam_9/ "instagram")
+
 
 ----------------------------------------------------------
 
