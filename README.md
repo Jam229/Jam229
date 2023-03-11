@@ -8,7 +8,7 @@
 ###### Me encuentro aprendiendo y descubriendo el mundo del desarrollo de software, además damer de corazón, me gustan mucho los jueguitos y quiero dedicarme a ello.
 ----------------------------------------------------------
 
-### Si te gustaria pasar un buen rato👌 mientras rescatamos jueguitos te espero proximamente en mi canal de twitch @RageJam 💜 
+### Si te gustaria pasar un buen rato  mientras rescatamos jueguitos ✌️ te espero proximamente en mi canal de twitch @RageJam 💜 
 
 ### Mis redes:
 
